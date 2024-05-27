@@ -5,3 +5,4 @@ I'm 21years old.
 Nice to meet you.  
 Hi~
 Hello
+특기 업데이트
